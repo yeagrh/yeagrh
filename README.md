@@ -1,5 +1,7 @@
-## Hi there 👋
+[eren
+](https://file.garden/ZxRG0WP6nXF7HLFB/image.png)
 
+hi ! i'm eren, i go by he/him pronouns. 
 <!--
 **yeagrh/yeagrh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
