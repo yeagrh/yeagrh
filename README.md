@@ -10,8 +10,4 @@ very friendly + openminded i will not judge you no matter what!!!, feel free to 
 Attack on Titan ++ Levi Ackerman Special Interest. ( # 1 fan over here. ) 
 Levi Ackerman Yume I LOVE HIM AWOOOO </p>
 
-
-
-
-
-
+you can find more here ; https://rentry.co/magicians
