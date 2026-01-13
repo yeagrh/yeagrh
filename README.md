@@ -1,4 +1,4 @@
-wip.. ill add imgs later hehe
+wip.. ill add imgs later hehe [ata](https://collie.atabook.org/)
 
 
 hi im Eren !! idk what i am but eren jaeger is literally me
