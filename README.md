@@ -2,7 +2,7 @@ wip.. ill add imgs later hehe [ata](https://collie.atabook.org/)
 
 
 hi im Eren !! idk what i am but eren jaeger is literally me
-18 yrs old. 
+19 yrs old. 
 autistic + bpd  gay mlm tkn 11 12 25, memory issues </p>
 PLS c+h i am a CHRONIC c+h'er, i MAY come up to you and randomly C you :oP </P>
 no dni outside basis ; all the -ists, -phobic, -ism etc. pref dni if under 16.  not interested in discourse, idgaf what u do with your life. im too old for that. so honestly dont try pls. i block freely! </p>
